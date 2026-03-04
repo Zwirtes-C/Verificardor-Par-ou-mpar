@@ -1,0 +1,1 @@
+# Verificardor-Par-ou-mpar
